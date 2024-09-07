@@ -3,3 +3,4 @@ Log Book Skripsi
                             1. Pelajari pendekatan CRT
                             2. Apakah Model pembelajaran bisa diterapkan di kemampuan masalah dan medianya
                             3. Observasi dan wawancara guru di sekolah terpilih
+04-09-24 **Konsultasi Kedua
